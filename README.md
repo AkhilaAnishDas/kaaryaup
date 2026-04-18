@@ -1,5 +1,5 @@
 
-## 🚀 KaaryaUp
+## 🚀 KaaryaUp - Team CodeSlayers - AkhilaDas & SanikaKangane
 
 **Hustle. Earn. Level Up.**
 
